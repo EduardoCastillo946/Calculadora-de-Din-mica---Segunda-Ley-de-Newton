@@ -1,0 +1,1 @@
+# Calculadora-de-Din-mica---Segunda-Ley-de-Newton
